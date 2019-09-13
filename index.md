@@ -6,3 +6,5 @@
 * 趣味:カラオケ、二度寝、昼寝
 ![外部リンク(カラオケ)](https://4.bp.blogspot.com/-n2rQ_SWclYs/WGCxSn-KkAI/AAAAAAABAp0/jBCq6quYvr0RAtMimWqfH3snQ9iNbzWtwCLcB/s800/karaoke_nessyou.png)
 ![外部リンク](https://2.bp.blogspot.com/-kMqEF2KQ_xs/WWNA51i4hDI/AAAAAAABFYA/LBcefmN7lo4wNscwy0u-8aZgA8mkRnb2gCLcBGAs/s800/smartphone_neochi.png)
+<br>いらすとやLINEスタンプ発売中↓<br>
+[外部リンク(line store)](https://store.line.me/stickershop/author/4325)
